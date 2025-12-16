@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "good things"
-date:   2025-12-14 20:20:25 -0500
+date:   2025-12-13 20:20:25 -0500
 categories: blog
 ---
 
