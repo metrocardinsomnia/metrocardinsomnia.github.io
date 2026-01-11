@@ -5,14 +5,8 @@
 layout: home
 ---
 
-hi hello, welcome to my website / blog / internet cozy corner
+Hi and hello. Welcome to my site / blog / internet cozy corner.
 
-just a quiet place to share some thoughts and photos
+Just a quiet place to share some thoughts and photos.
 
-I hope you enjoy
-
-
-{% assign date = '2020-04-13T10:20:00Z' %}
-
-- Original date - {{ date }}
-- With timeago filter - {{ date | timeago }}
+I hope you enjoy.
