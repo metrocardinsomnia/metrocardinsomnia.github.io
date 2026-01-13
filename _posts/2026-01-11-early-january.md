@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Early Jan" 
+title: "early Jan" 
 categories: blog
 ---
 
