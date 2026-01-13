@@ -5,7 +5,7 @@
 layout: home
 ---
 
-Hi and hello. Welcome to my site / blog / internet cozy corner. 🍵🐈‍⬛♨️🧖
+Hi and hello. Welcome to Brian's website / blog / internet cozy corner. 🍵🐈‍⬛♨️🧖
 
 Just a quiet place to share some thoughts and photos from my life.
 
