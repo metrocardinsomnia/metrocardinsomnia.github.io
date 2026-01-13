@@ -4,4 +4,4 @@ title: about
 permalink: /about/
 ---
 
-x
+(not too sure what to write here but thank you for checking)
