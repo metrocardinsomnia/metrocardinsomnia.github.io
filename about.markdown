@@ -6,7 +6,7 @@ permalink: /about/
 
 (not too sure what to write here but thank you for checking)
 
-Brian / 林さん / 林先生 is a person who:
+Brian / linxiansheng is a person who:
 
 - likes beverages of all kinds but especially coffee and tea 🍵
 - is waiting for the next Delta Rune chapter to come out 😈
