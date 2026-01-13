@@ -5,8 +5,9 @@
 layout: home
 ---
 
-Hi and hello. Welcome to my site / blog / internet cozy corner.
+Hi and hello. Welcome to my site / blog / internet cozy corner. 🍵🐈‍⬛♨️🧖
 
-Just a quiet place to share some thoughts and photos.
+Just a quiet place to share some thoughts and photos from my life.
 
-I hope you enjoy.
+(no promises) but I will try to gradually migrate old blogs and writings here and maybe also figure out a dark mode theme...
+
