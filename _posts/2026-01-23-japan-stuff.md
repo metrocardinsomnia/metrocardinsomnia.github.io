@@ -1,7 +1,8 @@
 ---
 layout: post
 title: "Japan 2026 | Things I brought back"
-categories: Japan, reviews
+categories: blog
+tags: japan
 ---
 
 This is part 0/? focused on things I brought back. I'll do subsequent blog posts by city (Nagoya, Takayama, etc.) or maybe by category (food, beverage, activities, etc.) not really sure yet.
