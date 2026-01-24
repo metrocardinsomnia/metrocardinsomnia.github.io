@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "japan 2026 part 0 | things I brought back"
+title: "Japan 26 part 0/? | things I brought back"
 categories: Japan, reviews
 ---
 
