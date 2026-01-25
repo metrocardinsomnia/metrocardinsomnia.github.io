@@ -80,7 +80,7 @@ I did a bunch of orSlow denim research prior and almost bought some secondhand p
 
 ![Image](https://github.com/user-attachments/assets/21452771-0644-4cae-a9b4-f0ac5638a2d8)
 
-107 (their ivy fit / slim fit) in size 1 was too tight at the thigh, felt limiting in movement. Sizing up to size 2 worked but then the waist was a bit too big. 105 (normal fit) in size 2 sorta worked but I didn't like how starchy and stiff the selvedge denim was. (I'm sure it softens out over time).
+107 (their ivy fit / slim fit) in size 1 was perfect at the waist but too tight at the thigh so like squating or whatever felt constricted. Sizing up to size 2 worked but then the waist was a bit too big. 105 (normal fit) in size 2 sorta worked but with both models the fabric itself felt just too stiff. I think I've realized that I need to buy things that "I would be willing to wear to the gym". As in they're both comfortable enough that I could go do some pull-ups and stretches in them if necessary while also being durable enough that I don't feel like I have to baby them.
 
 Randomly saw a pair of orSlow's painter pants and tried them on and loved them - way softer than the others and a super comfy Gramicci-esque wide straight pant fit. 
 
@@ -88,6 +88,10 @@ Randomly saw a pair of orSlow's painter pants and tried them on and loved them -
 
 
 I'm really impressed with all the details on these - triple stitching, brass buttons and rivets, and above all the fabric itself is soft yet sturdy, intentionally imperfect close up due to the old school looms they use, just so cool, I love them. 
+
+They even have a button fly too which is a bit less convenient than a zipper fly but cool. 
+
+Actually researching all this stuff has been really fun. Last trip in Tokyo I was talking to a Post O'Alls store staff and he was talking about how much the company was based off vintage Lee and how they even visited an old mill in Massachusetts somewhere. 
 
 ![Image](https://github.com/user-attachments/assets/d7816ffd-d545-4d87-b690-23dea47b4f33)
 
