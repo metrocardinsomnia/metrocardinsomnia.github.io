@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Japan 2026 | Takayama"
+title: "Japan 2026 | Takayama 高山"
 categories: blog
 ---
 
