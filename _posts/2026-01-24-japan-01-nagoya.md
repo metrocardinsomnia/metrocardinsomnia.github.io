@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Japan 2026 | Yokohama and Nagoya 横浜と名古屋"
+title: "Japan 2026 | Yokohama & Nagoya 横浜と名古屋"
 categories: blog
 tags: japan
 ---
