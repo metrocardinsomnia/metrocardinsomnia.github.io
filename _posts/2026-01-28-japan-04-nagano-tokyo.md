@@ -4,6 +4,8 @@ title: "Japan 2026 | Nagano & Tokyo 長野と東京"
 categories: blog
 ---
 
+![Image](https://github.com/user-attachments/assets/9426abbc-fc7b-42c2-8ce5-9e0c77f76882)
+
 So my last three nights (out of ten total) were spent with one in Nagano and then two in Tokyo before flying out. I also got my flight canceled the day it left due to snow in O'Hare (panic!) but luckily got that rebooked and learned some lessons too.
 
 ### Day 8: Nagano
