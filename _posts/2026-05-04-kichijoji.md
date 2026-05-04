@@ -26,6 +26,6 @@ But back to Kichijoji. Which I haven't really talked about at all other than in 
 
 Because that meant the last three days were all just chilling here in Kichijoji next to Inokashira Park. Well chilling and lying in bed with my stomach hurting too. But all the assorted shopping I wanted to do was here anyways. Even found a cool taiwanese tea place and plenty of other good stuff here too. Might even intentionally pick this neighborhood again in the future. 
 
-Today it was seventies (20+ centigrade) and very windy and just a great day to walk around in the Kichijoji backstreets. Actually a great day to admire outfit coordination too haha as I tried to figure out what remaining uniqlo things to buy. There was this flower shop owner guy just wearing black shoes, faded straight fit black jeans, and a darkish denim coverall jacket and that just looked so good. So natural. 
+Today it was seventies (20C+) and very windy and just a great day to walk around in the Kichijoji backstreets. Actually a great day to admire outfit coordination too haha as I tried to figure out what remaining uniqlo things to buy. There was this flower shop owner guy just wearing black shoes, faded straight fit black jeans, and a darkish denim coverall jacket and that just looked so good. So natural. Also peoples' jeans draping down to the right spot over their shoes. Like just perfect. This one guy was wearing black pants and an Urawa Reds soccer button up and that looked good too. Maybe the lesson here is to wear black pants and get them hemmed.
 
 Gonna keep trying.
