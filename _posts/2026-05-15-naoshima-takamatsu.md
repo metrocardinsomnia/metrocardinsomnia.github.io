@@ -72,7 +72,7 @@ Running down some of those downhill slopes was amazing. Must be even better on b
 
 ![PXL_20260421_035354918.jpg](https://github.com/user-attachments/assets/3c15783d-b5db-4291-8297-12a05a7e8fe1)
 
-Oh I had the sweetest interaction too. There's this local recycling center sorta thing - basically like a thrift store where locals donate things but everything is free. Purely for reuse and sharing. What a cool concept. I chatted with the staff lady for a bit talking about whatever and then this mother and daughter came in to drop off a bunch of stuff and I talked to them too. The mother showed me photos from hiking near Mt Fuji in Yamanashi and between those and watching Yuru Camp I really need to go there next.
+Oh I had the sweetest interaction too. There's this local recycling center sorta thing - basically like a thrift store where locals donate things but everything is free. Purely for reuse and sharing. I chatted with the staff lady for a bit talking about whatever and then this mother and daughter came in to drop off a bunch of stuff and I talked to them too. The mother showed me photos from hiking near Mt Fuji in Yamanashi and between those and watching Yuru Camp I really need to go there next.
 
 Anyways they dropped off a bunch of stuff including a cute Hokkaido shima enaga bird plush that I accepted and left a note for. Ended up chatting with them on the way to the ferry since they were going back to Takamatsu too.
 
