@@ -4,13 +4,13 @@ title: naoshima and takamatsu
 categories: blog
 ---
 
-Takamatsu the home of sanuki udon and Naoshima art island. My favorite new place this trip. A memory I want to go back to already. 
+Takamatsu, the home of sanuki udon, and Naoshima art island. My favorite new place this trip. A memory I want to go back to already. 
 
 ![PXL_20260421_030159511.MP.jpg](https://github.com/user-attachments/assets/00fc802c-cbeb-4fa0-b7f5-42d0cd7078d4)
 
 > kabocha, yayoi kusama
 
-I love udon. You can have it for breakfast, lunch, or dinner. You can find it for breakfast, lunch, or dinner. You can have it cold, you can have it hot. You can have it the day after throwing up your whole stomach twice from yakitori food poisoning and be fine, perhaps even happy. 
+I love udon. You can have it for breakfast, lunch, or dinner. You can find it for breakfast, lunch, or dinner. You can have it cold, you can have it hot. You can have it the day after throwing up your whole stomach twice from yakitori food poisoning and be fine, perhaps almost happy about food again. 
 
 And of course you can have it in Takamatsu, the home of sanuki udon.
 
@@ -18,11 +18,11 @@ And of course you can have it in Takamatsu, the home of sanuki udon.
 
 > kashiwa udon (chicken karaage sorta), niku udon 
 
-While I do love hot niku udon especially the one from Makino Udon in the basement of Hakata Bus Terminal in Fukuoka, to fully appreciate the texture of Kagawa prefecture sanuki udon you should try some cold. Someone in my kitchen knife discord recommended Setobare Udon about 8km east of JR Takamatsu so I ran there in the morning and took the train back. 
+While I do love hot niku udon (especially the one from Makino Udon in the basement of Hakata Bus Terminal in Fukuoka) to fully appreciate the texture of Kagawa prefecture sanuki udon you should try some cold. This guy in my kitchen knife discord recommended (more like said I'd be fined if I went to Takamatsu and did not go to) Setobare Udon about 8km east of JR Takamatsu so I decided to run the 8-10km out there in the morning.
 
-I got there maybe 8:40 or so on Monday morning and was 13th in line before open. Though just like Portillo's, a staff member came out and took our orders so that by the time you're seated your food's almost ready. 
+I got there maybe 8:40 and was 13th in line before open. Though just like Portillos, a staff member came out and took our orders so that by the time you're seated your food's almost ready. 
 
-My photos are terrible but the udon and tempura were both exceptional. That eggplant tempura was so incredibly juicy and yet still crisp and light at the same time. And the udon! You can see the noodles themselves shine. Each bite simultaneously chewy yet still soft. 
+My photos are terrible but the udon and tempura were both exceptional. That eggplant tempura was so incredibly juicy and yet still crisp and light at the same time. And the udon! You can see the noodles themselves shine. Each bite simultaneously chewy yet still soft. Chef himself is in the front of the restaurant kneading and cutting and cooking the udon.
 
 ![20260515_201617-COLLAGE.jpg](https://github.com/user-attachments/assets/24a582c1-0220-49dd-b2e0-30737e7adc97)
 
@@ -66,7 +66,7 @@ Some of the museums are just normal museusm but there are a few tiny "art house 
 
 The Naoshima New Museum of Art had a nice little terrace cafe so I got some wakoucha and a chocolate tart. Look at how pretty that tea is in porcelain.
 
-![PXL_20260421_030751532.MP.jpg](https://github.com/user-attachments/assets/f5f5fd69-da1b-4f67-864b-77a60725c1e6)
+![20260515_195826-COLLAGE.jpg](https://github.com/user-attachments/assets/d6e7055d-312e-417c-9204-7675a6782285)
 
 Running down some of those downhill slopes was amazing. Must be even better on bike.
 
