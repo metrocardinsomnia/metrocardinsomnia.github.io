@@ -54,7 +54,7 @@ You can rent a bike on the island or take a shuttle or local bus around but bein
 
 I decided on a clockwise loop so that running on the lefthand side of the road I'd always be along the sea. 
 
-![PXL_20260421_035354918.jpg](https://github.com/user-attachments/assets/3c15783d-b5db-4291-8297-12a05a7e8fe1)
+![20260515_200836-COLLAGE.jpg](https://github.com/user-attachments/assets/e71c8f13-c800-4615-ba58-1c60198bbff3)
 
 > a local artist makes froggies out of discarded fishing buoys, so cute
 
