@@ -4,6 +4,13 @@ title: good things
 categories: blog
 ---
 
+Plans for today:
+
+- Billy's sub shop for a pastrami sub or a steak bomb or an italin sub I can't decide...
+- Linger duh
+- Running health -> rest day + home PT exercises
+- Japanese -> read 10 more pages of Mieko Kawakami and at least 20 more Kanji for 1450 total
+
 Good things: 
 
 Building key get! Huge relief. I still don't know how the previous subletter destroyed the key but we've been stuck loitering around for people to leave or enter the building since Saturday.
