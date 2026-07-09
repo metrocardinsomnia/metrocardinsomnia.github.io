@@ -15,7 +15,12 @@ Good things:
 
 Building key get! Huge relief. I still don't know how the previous subletter destroyed the key but we've been stuck loitering around for people to leave or enter the building since Saturday.
 
+![PXL_20260708_213633655.jpg](https://github.com/user-attachments/assets/5b08f645-91a0-4c98-a638-ab39aa19ad39)
+
 So now I can go out whenever for groceries or an evening walk. Last night I walked around the Fens at night calling my Dad to ask about car stuff and it was so nice just seeing lots of people around plus a turtle and a raccoon. Enough people around running, walking, playing soccer to feel safe and at ease but not hectic.
+
+![PXL_20260709_003607118.jpg](https://github.com/user-attachments/assets/e7031dba-0941-41a8-bb1a-c675c7d1a68e)
+
 
 Now I'm a mere 1 commuter rail stop from Linger. Just walk to Lansdowne -> commuter rail one stop -> familiar walk from Boston Landing. I had gyokuro yesterday - that smelled amazing and had such a nice full body to it. 
 
