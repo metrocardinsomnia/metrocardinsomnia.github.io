@@ -6,8 +6,8 @@ categories: blog
 
 Plans for today:
 
-- Billy's sub shop for a pastrami sub or a steak bomb or an italin sub I can't decide...
-- Linger duh
+- New things -> Billy's sub shop for a pastrami sub or a steak bomb or an italin sub I can't decide...
+- Good things -> Linger duh
 - Running health -> rest day + home PT exercises
 - Japanese -> read 10 more pages of Mieko Kawakami and at least 20 more Kanji for 1450 total
 
