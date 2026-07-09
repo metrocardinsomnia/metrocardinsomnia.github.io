@@ -30,7 +30,7 @@ Ok what else. Did a lot of Japanese learning at Linger. Now we're at 1430 kanji 
 
 "Left foot feels bad" running recovery. I think we're getting better. Limiting steps. Did 13k yesterday which is better than what I was doing over the weekend and Tuesday. 
 
-Car stuff. Talked to Ren about car problems. Talked to Jaz and Dad about car problems too. Ok I think we're gonna try to diagnose our fan problem (does the fan ever turn on when we're at operating temp? Is the fan motor broken? Or is it the radiator sensor or relay or even just the coolant sensor again?) I think Dad actually asked if I wanted a wrench set when we first moved in and I don't know what I said or if I took him up on that but sounds like we could just order a new sensor and swap that out with just a 19mm wrench with an extension. 
+Car stuff. Talked to Ren about car problems. Talked to Jaz and Miche and Dad about car problems too. Ok I think we're gonna try to self-diagnose our fan problem (does the fan ever turn on when we're at operating temp? Is the fan motor broken? Or is it the radiator sensor or relay or even just the coolant sensor again?) I think Dad actually asked if I wanted a wrench set when we first moved in and I don't know what I said or if I took him up on that but sounds like we could just order a new sensor and swap that out with some gloves and a 19mm wrench. 
 
 If we can just survive until mid-March we'll know where we're going to be for residency and can figure out how much car to get. Don't want to spend $$$ on a fancy car just to leave it parked all week b/c I don't want to drive at all in Boston and Cambridge. Like in an ideal week regardless of what car we own, I'd love to just be walking, biking, and taking the T. No driving, no parking. 
 
